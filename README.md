@@ -1,1 +1,1 @@
-Bakchodi band nahi honi chahiye
+BC band nahi honi chahiye
