@@ -1,1 +1,1 @@
-BC band nahi honi chahiye
+Mazaak mazaak mazaak
